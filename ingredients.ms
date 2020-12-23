@@ -1,0 +1,1 @@
+bread,sandwich spread,vegetables(onion,tomato,capcicum),green chutney,plack pepper , salt ,cheese slice

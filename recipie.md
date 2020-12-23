@@ -1,0 +1,1 @@
+apply chutney on one side of bread and butter on other side,spread the vegetables on the bread slice,sprinkle litle salt and black pepper over it ,place a cheese slice over it ,grill it 
